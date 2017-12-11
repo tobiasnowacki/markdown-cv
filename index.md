@@ -35,7 +35,8 @@ Studentship for tuition fees (partial) and monthly stipend
 
 `2015`
 __Undergraduate Awards__.
-Essay Competition in Dublin, Ireland
+Essay Competition in Dublin, Ireland. \\
+
 Participation stipend by Warwick (€1,050)
 Honourable Mention
 
