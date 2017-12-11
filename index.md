@@ -50,7 +50,7 @@ __Teaching Assistant, Warwick__
 __Research Assistant, Warwick__
 
 `2012-2013`
-__Marketing Assistant, die_schnittsteller __ Berlin
+__Marketing Assistant, die_schnittsteller__ Berlin
 
 
 
