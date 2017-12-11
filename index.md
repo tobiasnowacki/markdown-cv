@@ -27,21 +27,25 @@ __BA in Philosophy, Politics, and Economics__, Warwick.
 
 `2017-2020`
 __Economic and Social Research Council and Nuffield College__.
+
 Studentship for tuition fees (full) and full maintenance stipend
 
 `2016`
 __Studienstiftung des deutschen Volkes__.
+
 Studentship for tuition fees (partial) and monthly stipend
 
 `2015`
 __Undergraduate Awards__.
-Essay Competition in Dublin, Ireland. \\
 
-Participation stipend by Warwick (€1,050)
-Honourable Mention
+Essay Competition in Dublin, Ireland.
+
+- Participation stipend by Warwick (€1,050)
+- Honourable Mention in Essay Competition
 
 `2015`
 __Undergraduate Research Support Scheme__
+
 £760 grant for 'Party Competition in Sub-Saharan Africa'
 
 ## Conferences and Presentations
